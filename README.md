@@ -18,5 +18,5 @@ Conclusion In conclusion, this EDA process provided valuable insights into the d
 Thank you for reviewing my submission!
 
 📬 Contact For any inquiries or feedback regarding this project, please contact:
-Lakshmi Dheeraja Kunderu (LinkdIn) Email: kldheeraja@gmail.com
+Lakshmi Dheeraja Kunderu (LinkdIn) Email: swethakorada17@gmail.com
  
